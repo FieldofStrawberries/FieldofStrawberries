@@ -39,7 +39,7 @@ ${{\color{#770000}{\textsf{hi comm strawpage is in work be paitent lala}}}}$
 
 
 
-✙ ꒰a[ta꒱](https://internet-angel.atabook.org/) 𓎟𓎡 ꒰stra[wpge꒱](no//nyanyannyannyannyan.straw.page/) 𓎟𓎡 ꒰prn[s page꒱](https://en.pronouns.page/@from_love2hatred) 𓎟𓎡 ꒰my bios[+kaomojis꒱](https://emojicombos.com/blades--inmyhead) ✙
+✙ ꒰a[ta꒱](https://internet-angel.atabook.org/) 𓎟𓎡 ꒰stra[wpge꒱](https://nyanyannyannyannyan.straw.page/) 𓎟𓎡 ꒰prn[s page꒱](https://en.pronouns.page/@from_love2hatred) 𓎟𓎡 ꒰[my](https://emojicombos.com/blades--inmyhead) bios[+kaomojis꒱](https://emojicombos.com/blades--inmyhead) 𓎟𓎡꒰[co](https://commisionsponytown.straw.page/)mmisions [strawpge꒱](https://commisionsponytown.straw.page/)✙
 
 
 
