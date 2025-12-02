@@ -3,7 +3,7 @@
 
 <div align="center">
 
-꒰![](https://komarev.com/ghpvc/?username=FieldofStrawberries&base=3203&label=youtube.comVIEWS&color=770000&style=plastic)꒱
+꒰![](https://komarev.com/ghpvc/?username=FieldofStrawberries&base=6666&label=youtube.comVIEWS&color=c5c5c5&style=plastic)꒱
 
 
 
