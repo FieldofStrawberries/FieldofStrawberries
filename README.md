@@ -35,11 +35,11 @@ ${{\color{#770000}{\textsf{sh𝒆.th𝒆y P𝒓eferred most but 𝒂ny hon𝒆st
 ${{\color{#770000}{\textsf{bios+kaomojis ive made are free to use,}}}}$
 
 
-${{\color{#770000}{\textsf{hi comm strawpage is in work be paitent lala}}}}$
+${{\color{#770000}{\textsf{hi comm strawpage is FINISHED woah lala}}}}$
 
 
 
-✙ ꒰a[ta꒱](https://internet-angel.atabook.org/) 𓎟𓎡 ꒰stra[wpge꒱](https://nyanyannyannyannyan.straw.page/) 𓎟𓎡 ꒰prn[s page꒱](https://en.pronouns.page/@from_love2hatred) 𓎟𓎡 ꒰[my](https://emojicombos.com/blades--inmyhead) bios[+kaomojis꒱](https://emojicombos.com/blades--inmyhead) 𓎟𓎡꒰[co](https://commisionsponytown.straw.page/)mmisions [strawpge꒱](https://commisionsponytown.straw.page/) <- wip✙
+✙ ꒰a[ta꒱](https://internet-angel.atabook.org/) 𓎟𓎡 ꒰stra[wpge꒱](https://nyanyannyannyannyan.straw.page/) 𓎟𓎡 ꒰prn[s page꒱](https://en.pronouns.page/@from_love2hatred) 𓎟𓎡 ꒰[my](https://emojicombos.com/blades--inmyhead) bios[+kaomojis꒱](https://emojicombos.com/blades--inmyhead) 𓎟𓎡꒰[co](https://commisionsponytown.straw.page/)mmisions [strawpge꒱](https://commisionsponytown.straw.page/) ✙
 
 
 
@@ -48,7 +48,7 @@ ${{\color{#770000}{\textsf{python progr𝒂mm𝒆r. bl𝒆nd𝒆r us𝒆r!! . �
 
 
 
-${{\color{#770000}{\textsf{tsk tsk still learning python tho hmph..}}}}$
+${{\color{#770000}{\textsf{tsk tsk still learning python and html tho hmph..}}}}$
 
 
 [mwamwa.webm](https://github.com/user-attachments/assets/04354bd1-c6d5-46d2-bc64-ac8d94caf134)
