@@ -51,4 +51,4 @@ ${{\color{#770000}{\textsf{python progr𝒂mm𝒆r. bl𝒆nd𝒆r us𝒆r!! . �
 ${{\color{#770000}{\textsf{tsk tsk still learning python and html tho hmph..}}}}$
 
 
-[mwamwa.webm](https://github.com/user-attachments/assets/04354bd1-c6d5-46d2-bc64-ac8d94caf134)
+
