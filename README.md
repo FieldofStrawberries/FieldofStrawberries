@@ -3,52 +3,51 @@
 
 <div align="center">
 
-꒰![](https://komarev.com/ghpvc/?username=FieldofStrawberries&base=6666&label=youtube.comVIEWS&color=c5c5c5&style=plastic)꒱
+![.](https://komarev.com/ghpvc/?username=FieldofStrawberries&base=10000&label=Love.letters.sent&color=ed3ca6&style=plastic)
+
+![divider](https://dividers.crd.co/assets/images/gallery02/5ead3573.gif?v=05d33f91)
+
+![..](https://dividers.crd.co/assets/images/gallery09/b80e2e1a.gif?v=05d33f91)
 
 
 
 
-
-
-![d97d458cf3a0082e21d7a0bebf414fea](https://github.com/user-attachments/assets/617927e8-f33a-49f6-bc67-4fe39c5e2e73)
-
-═════════════════════════════════════════════════════════════════════════════════════
 </div>
 
 <div align="center">
-´ω' 
+
 
 	
-![tumblr-de5c2291991d2f31284693cb5b557bd5-2bceebf5-1280](https://github.com/user-attachments/assets/c800d74a-361d-4547-8e21-eb416fbf8a03)
 
       
-${{\color{#770000}{\textsf{ Sprout , }}}}$
+${{\color{#e682e6}{\textsf{ SUN , }}}}$ 
 
 
-</div>
-
-<div align="center">
       
-${{\color{#770000}{\textsf{sh𝒆.th𝒆y P𝒓eferred most but 𝒂ny hon𝒆stly⨾}}}}$
-
-
-${{\color{#770000}{\textsf{bios+kaomojis ive made are free to use,}}}}$
-
-
-${{\color{#770000}{\textsf{hi comm strawpage is FINISHED woah lala}}}}$
-
-
-
-✙ ꒰a[ta꒱](https://internet-angel.atabook.org/) 𓎟𓎡 ꒰stra[wpge꒱](https://nyanyannyannyannyan.straw.page/) 𓎟𓎡 ꒰prn[s page꒱](https://en.pronouns.page/@from_love2hatred) 𓎟𓎡 ꒰[my](https://emojicombos.com/blades--inmyhead) bios[+kaomojis꒱](https://emojicombos.com/blades--inmyhead) 𓎟𓎡꒰[co](https://commisionsponytown.straw.page/)mmisions [strawpge꒱](https://commisionsponytown.straw.page/)𓎟𓎡꒰[rentry](https://rentry.co/a_fieldofStrawberries)꒱✙
+${{\color{#a51a7d}{\textsf{if i hid / blocked you its because ur rude or weird.  }}}}$ ${{\color{#a51b7d}{\textsf{i wont}}}}$ **UNBLOCK** ${{\color{#a51b7d}{\textsf{if u dont apologize / stop}}}}$
 
 
 
 
-${{\color{#770000}{\textsf{python progr𝒂mm𝒆r. bl𝒆nd𝒆r us𝒆r!! . 𝒂rtist(?) (๑;⩊;๑)}}}}$
+
+
+${{\color{#5a0098}{\textsf{MODELER .}}}}$ **PROGRAMMER** ${{\color{#5a0098}{\textsf{ . ARTIST}}}}$
+
+${{\color{#000c76}{\textsf{Sprout kinnie .dbls iwec ; kangel doubles dni }}}}$ ![](https://files.catbox.moe/pa5tad.gif) . **scag doubles iwc**
+
+[ATA.](https://internet-angel.atabook.org/) [STRAWPAGE.](https://nyanyannyannyannyan.straw.page/) [PRNS.](https://en.pronouns.page/@from_love2hatred) [COMMS.](https://commisionsponytown.straw.page)[ RENTRY](https://rentry.co/a_fieldofStrawberries)
+
+[read this. doc](https://docs.google.com/document/d/1TILJRk19gau8diWNPdqThLh0TvxeXpLi1iff57skuvg/edit?tab=t.0)
+
+![aa](https://dividers.crd.co/assets/images/gallery02/74d12042.gif?v=05d33f91)
+
+![](https://dividers.crd.co/assets/images/gallery02/ef4b4365.png?v=05d33f91)![](https://dividers.crd.co/assets/images/gallery02/ef4b4365.png?v=05d33f91)
 
 
 
-${{\color{#770000}{\textsf{tsk tsk still learning python and html tho hmph..}}}}$
 
+*read rentry before you interact please* . .
 
+**if u are friends with the person inside of the document. D N I (uid)**
 
+![](https://i.postimg.cc/bNTGzzqH/V0IxwoS.png)
