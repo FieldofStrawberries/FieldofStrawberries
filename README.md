@@ -51,3 +51,8 @@ ${{\color{#000c76}{\textsf{Sprout kinnie .dbls iwec ; kangel doubles dni }}}}$ !
 **if u are friends with the person inside of the document. D N I (uid)**
 
 ![](https://i.postimg.cc/bNTGzzqH/V0IxwoS.png)
+
+follow them .. ALL!!
+
+
+: @yvoisen @ethereal-fatality  @itssillyywillyy @PATHEISM @Solyrvv @Asexual-Girl  @kim-k1tsuragi @SoullessJam @6ullets @GAMBLEGHOST @Angelspup @SkyColtLover @ZOMBXIECLAWZ @BOBETTE-CAROLYNNE @veeirl @LEAFPIN @mortalpain @carni-val @sokizsp4ceship :
