@@ -37,7 +37,7 @@ ${{\color{#000c76}{\textsf{Sprout kinnie .dbls iwec ; kangel doubles dni }}}}$ !
 
 [ATA.](https://internet-angel.atabook.org/)  [PRNS.](https://en.pronouns.page/@from_love2hatred) [ RENTRY](https://rentry.co/a_fieldofStrawberries)
 
-[read this. doc](https://docs.google.com/document/d/1TILJRk19gau8diWNPdqThLh0TvxeXpLi1iff57skuvg/edit?tab=t.0)
+[read this. doc](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-nrmBr6K5RE-k89BBbiN0)
 
 ![aa](https://dividers.crd.co/assets/images/gallery02/74d12042.gif?v=05d33f91)
 
