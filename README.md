@@ -2,6 +2,8 @@
 </div>
 
 <div align="center">
+	
+
 
 ![.](https://komarev.com/ghpvc/?username=FieldofStrawberries&base=10000&label=Love.letters.sent&color=ed3ca6&style=plastic)
 
@@ -16,6 +18,7 @@
 
 <div align="center">
 
+<img width="700" height="150" alt="a2" src="https://github.com/user-attachments/assets/a0a5b65c-798c-459a-bbbd-646b0b20833c" />
 
 	
 
@@ -48,8 +51,8 @@ ${{\color{#000c76}{\textsf{Sprout kinnie .dbls iwec ; kangel doubles dni }}}}$ !
 
 *read rentry before you interact please* . .
 
-**if u are friends with the person inside of the document. D N I (uid)**
+**if u are friends with the person inside of the document.dniuid**
 
-![](https://i.postimg.cc/bNTGzzqH/V0IxwoS.png)
+![](https://files.catbox.moe/hhomya.gif)![](https://files.catbox.moe/13fot8.gif)![](https://files.catbox.moe/4wdehk.gif)
 
 [random song that describes me way too perfectly..](https://youtu.be/2b1IexhKPz4?list=PLviISIuPSvqhJ5O9gihZWUwQD_1i4dDKt)
