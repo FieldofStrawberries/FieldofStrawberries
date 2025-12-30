@@ -35,7 +35,7 @@ ${{\color{#5a0098}{\textsf{MODELER .}}}}$ **PROGRAMMER** ${{\color{#5a0098}{\tex
 
 ${{\color{#000c76}{\textsf{Sprout kinnie .dbls iwec ; kangel doubles dni }}}}$ ![](https://files.catbox.moe/pa5tad.gif) . **scag doubles iwc**
 
-[ATA.](https://internet-angel.atabook.org/)  [PRNS.](https://en.pronouns.page/@from_love2hatred) [ RENTRY](https://rentry.co/a_fieldofStrawberries)
+[ATA.](https://internet-angel.atabook.org/) [ STRAW.](https://nyanyannyannyannyan.straw.page/) [PRNS.](https://en.pronouns.page/@from_love2hatred) [ RENTRY.](https://rentry.co/a_fieldofStrawberries) [ COMMS.](https://commissssssssion.straw.page/)
 
 [read this. doc](https://docs.google.com/document/d/1VFd_xb5A6R73W8frI2wzD7-nrmBr6K5RE-k89BBbiN0)
 
