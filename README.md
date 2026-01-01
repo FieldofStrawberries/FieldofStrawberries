@@ -51,7 +51,7 @@ ${{\color{#000c76}{\textsf{Sprout kinnie .dbls iwec ; kangel doubles dni }}}}$ !
 
 *read rentry before you interact please* . .
 
-**if u are friends with the person inside of the document.dniuid**
+**can u all stop taking inspo without permission dude EVEN if ur a friend. im not that stupid**
 
 ![](https://files.catbox.moe/hhomya.gif)![](https://files.catbox.moe/13fot8.gif)![](https://files.catbox.moe/4wdehk.gif)
 
