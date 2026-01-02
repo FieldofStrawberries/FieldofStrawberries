@@ -25,18 +25,18 @@
       
 ${{\color{#e682e6}{\textsf{ SUN , }}}}$ 
 
-
+ **♡**
       
-${{\color{#a51a7d}{\textsf{if i hid / blocked you its because ur rude or weird.  }}}}$ ${{\color{#a51b7d}{\textsf{i wont}}}}$ **UNBLOCK** ${{\color{#a51b7d}{\textsf{if u dont apologize / stop}}}}$
+𝆹 ${{\color{#a51a7d}{\textsf{   if i hid / blocked you its because ur rude or weird.  }}}}$ ${{\color{#a51b7d}{\textsf{i wont}}}}$ **UNBLOCK** ${{\color{#a51b7d}{\textsf{unless i wanna}}}}$ ˛ 𓏲࣪
 
 
 
 
 
 
-${{\color{#5a0098}{\textsf{MODELER .}}}}$ **PROGRAMMER** ${{\color{#5a0098}{\textsf{ . ARTIST}}}}$
+${{\color{#5a0098}{\textsf{MODELER .}}}}$ **PROGRAMMER** ${{\color{#5a0098}{\textsf{ . ARTIST}}}}$   ྐ𓈒ּ֯݁⑅
 
-${{\color{#000c76}{\textsf{Sprout kinnie .dbls iwec ; kangel doubles dni }}}}$ ![](https://files.catbox.moe/pa5tad.gif) . **scag doubles iwc**
+${{\color{#000c76}{\textsf{Sprout kinnie .dbls iwec ; kangel doubles dni໒ྀ }}}}$  ![](https://files.catbox.moe/pa5tad.gif) . **scag doubles iwc**
 
 [ATA.](https://internet-angel.atabook.org/) [ STRAW.](https://nyanyannyannyannyan.straw.page/) [PRNS.](https://en.pronouns.page/@from_love2hatred) [ RENTRY.](https://rentry.co/a_fieldofStrawberries) [ COMMS.](https://commissssssssion.straw.page/)
 
@@ -44,7 +44,6 @@ ${{\color{#000c76}{\textsf{Sprout kinnie .dbls iwec ; kangel doubles dni }}}}$ !
 
 ![aa](https://dividers.crd.co/assets/images/gallery02/74d12042.gif?v=05d33f91)
 
-![](https://dividers.crd.co/assets/images/gallery02/ef4b4365.png?v=05d33f91)![](https://dividers.crd.co/assets/images/gallery02/ef4b4365.png?v=05d33f91)
 
 
 
@@ -55,4 +54,4 @@ ${{\color{#000c76}{\textsf{Sprout kinnie .dbls iwec ; kangel doubles dni }}}}$ !
 
 ![](https://files.catbox.moe/hhomya.gif)![](https://files.catbox.moe/13fot8.gif)![](https://files.catbox.moe/4wdehk.gif)
 
-[random song that describes me way too perfectly..](https://youtu.be/2b1IexhKPz4?list=PLviISIuPSvqhJ5O9gihZWUwQD_1i4dDKt)
+[](https://youtu.be/2b1IexhKPz4?list=PLviISIuPSvqhJ5O9gihZWUwQD_1i4dDKt) 
