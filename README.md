@@ -29,6 +29,8 @@ ${{\color{#e682e6}{\textsf{ SUN , }}}}$
       
 𝆹݁ 𓏲 ${{\color{#a51a7d}{\textsf{   if i hid / blocked you its because ur rude or weird.  }}}}$ ${{\color{#a51b7d}{\textsf{i wont}}}}$ **UNBLOCK** ${{\color{#a51b7d}{\textsf{unless i wanna}}}}$ ˛ 𓏲࣪
 
+*i* hide **freely**
+
 
 
 
