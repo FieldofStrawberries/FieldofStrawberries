@@ -21,7 +21,6 @@
 <img width="700" height="155" alt="a2" src="https://github.com/user-attachments/assets/a0a5b65c-798c-459a-bbbd-646b0b20833c" />
 
 	
-**war may start in my country again for a month or less (iran) . may be inactive on pt and more on roblox since it wont let me join pt easily :p when the wifi turns off**
       
 ${{\color{#e682e6}{\textsf{ SUN , }}}}$ 
 
